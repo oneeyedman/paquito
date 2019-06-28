@@ -1,3 +1,3 @@
 # Proyecto Paquito
 
-:)
+🦄
